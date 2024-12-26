@@ -22,7 +22,7 @@ Claude Pro 提供了更高的性能和更好的用户体验。订阅该服务的
 
 综上所述，Anthropic 的 Claude Pro 是一个高级订阅服务，为用户提供了更强大的访问和功能，并且价格相对较为合理。用户可以通过 Anthropic 的官网订阅，享受优先访问、更多的对话量和更好的用户体验。
 
-[点击注册美国虚拟信用卡 方便随时订阅 Claude Pro](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
+[点击注册美国虚拟信用卡 方便随时订阅 Claude Pro](https://bit.ly/bewildcard)
 
 ## Anthropic 的吸引力何在？
 
@@ -44,5 +44,5 @@ Anthropic 的创建理念是建立符合人类价值观的 AI 系统，以及促
 
 Anthropic 的研究和开发方向受到了投资界的高度认可和支持，这使得该公司仅用了短短两年的时间便拿到了 C 轮融资，目前融资总额已达到 14.5 亿美元，估值超过 40 亿美元。其投资方包括科技巨头谷歌、Salesforce 和 Zoom，以及其他知名投资机构和个人。
 
-[点击注册美国虚拟信用卡 方便随时订阅 Claude Pro](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
+[点击注册美国虚拟信用卡 方便随时订阅 Claude Pro](https://bit.ly/bewildcard)
 
